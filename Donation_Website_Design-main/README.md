@@ -1,3 +1,0 @@
-
-Non-profitable organization
-#FeedIndia 
